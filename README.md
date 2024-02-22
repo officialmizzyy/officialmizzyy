@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mizzy
+- 👀 I’m interested in Web Development
+- 🌱 I’m currently learning pretty much everything.
+- 💞️ I’m working on a secret project right now!
+- 📫 How to reach me | Twitter: @mxzin2 
+- ⚡ Fun fact: I like Coca-Cola.
